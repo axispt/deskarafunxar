@@ -1,1 +1,0 @@
-![[Sem título.base]]
